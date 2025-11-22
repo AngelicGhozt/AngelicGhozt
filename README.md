@@ -16,6 +16,7 @@ About Me🌙: Based in the USA.
 - 🔭 I’m currently working on.... future projects TBA.
 - 📫 How to reach me: TBA
 - ⚡ Fun fact: I like to play and stream my video game play online as my side hobby.
+
 <<💚  I Like Matcha Green Latte.
 
 - My Skills: The Basics of life.
