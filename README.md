@@ -2,15 +2,15 @@
 
 About Me🌙: Based in the USA.
 
-**autodidact**
+**Autodidact**
 
-· I am New to coding and learning for fun starting with C++.
+  I am New to coding and learning for fun starting with C++.
 
-· I have alot of ideas that i want to combine and implement into a creative aspect of coding, while adapting and experienceing new challenges along the way.
+  I have alot of ideas that i want to combine and implement into a creative aspect of coding, while adapting and experienceing new challenges along the way.
 
-· I want to create and build whatever I can imagine.
+  I want to create and build whatever I can imagine.
 
-· I am not sure where coding is going to take me, or what area i will be focused on.
+  I am not sure where coding is going to take me, or what area i will be focused on.
 
 - 🌱 I’m currently learning on Coddy.Tech i will add more sources the more i dive into it. 
 - 🔭 I’m currently working on.... future projects TBA.
