@@ -20,10 +20,15 @@ I also have an Arduino starter kit that I haven’t had the chance to fully tink
 Another area that personally interests me is learning more about energy and understanding it on a deeper level as part of my curiosity and personal self-growth journey.
 
 🌱 Currently learning: Creative design, technology, and exploring different interests
+
 🔭 Currently working on: Future projects TBA
+
 🛠️ Interested in: Arduino, creative tech, design-oriented projects, and learning more about energy
+
 📫 How to reach me: see my discord link.
+
 ⚡ Fun fact: I enjoy gaming and streaming online as a side hobby
+
 💚 I like matcha green lattes
 
 
