@@ -7,7 +7,7 @@ Autodidact
 
 I’m new to coding and exploring different creative areas of technology, design, and personal interests that inspire me.
 
-I originally started learning C++, but decided to take a step back from it for now so I can focus more on the creative and design side of learning before returning to programming later on.
+I originally started learning C++, but decided to take a step back from it for now so I can focus more on the creative and design side of learning before returning to the design programming later on.
 
 I have a lot of ideas that I want to combine and turn into creative projects while adapting to and experiencing new challenges along the way.
 
