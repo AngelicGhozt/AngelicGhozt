@@ -27,18 +27,14 @@ Another area that personally interests me is learning more about energy and unde
 
 📫 How to reach me: see my discord link.
 
-⚡ Fun fact: I enjoy gaming and streaming online as a side hobby
+⚡ Fun fact: 🎮 I enjoy gaming and streaming online as a side hobby
 
 💚 I like matcha green lattes
 
-
-
-🎮 I also enjoy gaming and streaming as a hobby.
-
 💬 Discord Server: https://discord.gg/4v3FsPEa
 
-Skills
+Skills:
 The basics of life
-Skill Issue TBA
+Skill Issue- TBA
 
 This profile is currently a work in progress...
