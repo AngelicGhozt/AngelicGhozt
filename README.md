@@ -39,8 +39,6 @@ Another area that personally interests me is learning more about energy and unde
 
 🟣 Twitch: https://www.twitch.tv/angelicghozt
 
-🎵 Carrd: angelicghozt.carrd.co
-
 💬 Discord Server: https://discord.gg/4v3FsPEa
 
 ☕ Ko-fi: https://ko-fi.com/angelicghozt
