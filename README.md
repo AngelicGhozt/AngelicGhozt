@@ -35,13 +35,7 @@ Another area that personally interests me is learning more about energy and unde
 
 🎮 I also enjoy gaming and streaming as a hobby.
 
-📺 YouTube: https://www.youtube.com/@AngelicGhozt  
-
-🟣 Twitch: https://www.twitch.tv/angelicghozt
-
 💬 Discord Server: https://discord.gg/4v3FsPEa
-
-☕ Ko-fi: https://ko-fi.com/angelicghozt
 
 Skills
 The basics of life
