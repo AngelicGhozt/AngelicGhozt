@@ -33,7 +33,9 @@ Another area that personally interests me is learning more about energy and unde
 
 
 Skills:
+
 The basics of life
+
 Skill Issue- TBA
 
 This profile is currently a work in progress...
