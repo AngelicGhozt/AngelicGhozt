@@ -32,9 +32,7 @@ Another area that personally interests me is learning more about energy and unde
 💚 I like matcha green lattes
 
 
-Skills:
-
-The basics of life
+Skills: The basics of life
 
 Skill Issue- TBA
 
