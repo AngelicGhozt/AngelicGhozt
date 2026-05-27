@@ -25,13 +25,12 @@ Another area that personally interests me is learning more about energy and unde
 
 🛠️ Interested in: Arduino, creative tech, design-oriented projects, and learning more about energy
 
-📫 How to reach me: see my discord link.
+📫 How to reach me: Add me on Discord.
 
 ⚡ Fun fact: 🎮 I enjoy gaming and streaming online as a side hobby
 
 💚 I like matcha green lattes
 
-💬 Discord Server: https://discord.gg/4v3FsPEa
 
 Skills:
 The basics of life
